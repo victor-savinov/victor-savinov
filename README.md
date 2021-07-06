@@ -1,1 +1,1 @@
-Grow it :baby_chick: :seedling:
+Destroy it :meat_on_bone: :fire:
