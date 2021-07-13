@@ -1,1 +1,1 @@
-Believe it :bird: :deciduous_tree:
+Grow it :baby_chick: :seedling:
